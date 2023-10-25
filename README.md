@@ -1,5 +1,5 @@
 - 👋 Olá! Sou a ProfessoraRhuanita
-- 👀 Leciono em escolas Estaduais há 24 anos, na disciplina de Língua Portuguesa/Tecnologia/Artes/Inglês
+- 👀 Trabalho em escolas estaduais há 24 anos, na disciplina de Língua Portuguesa/Tecnologia/Artes/Inglês
 
   
 
